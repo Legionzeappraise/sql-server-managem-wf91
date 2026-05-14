@@ -1,4 +1,4 @@
-# 
+# Get the ultimate SQL Server Management Studio for PC | SQL Server Management Studio for Windows snippet with advanced SQL Server Management Studio for PC | SQL Server Management
 
 
 
